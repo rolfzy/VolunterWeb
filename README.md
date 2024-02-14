@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* DotA Enigma, [Linkedin](https://www.linkedin.com/feed/).  
